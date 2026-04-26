@@ -29,3 +29,5 @@ Por eso la afición cañí premium reconoce, cuarto de siglo después, que aquel
 El disco sigue vigente porque la lógica es eterna. Los conquistadores siguen marchándose. Los dioses siguen marchándose. Los premios Nobel siguen marchándose. El diablo sigue marchándose. Robe sigue marchándose. Y nosotros, los oyentes, nos seguimos marchando con ellos cada vez que ponemos el disco. Es el karaoke metafísico más honesto del rock peninsular.
 
 Y eso, en estos tiempos donde todo el mundo quiere matizar, es de un valor incalculable.
+
+RAL. 26 Abril 2026
