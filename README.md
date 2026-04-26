@@ -1,5 +1,5 @@
-Sobre la integridad referencial del sintagma "todos"
-Notas semánticas a propósito del histórico mandato extremoduriano
+Notas semánticas a propósito del histórico mandato extremoduriano:
+
 Hay obras de arte que envejecen mal, y obras de arte que envejecen exactamente como deben. Iros todos a tomar por culo (Extremoduro) pertenece a la segunda categoría por una razón que pocos críticos han sabido enunciar con precisión: no es la rabia lo que la sostiene, es la lógica formal.
 
 Robe Iniesta lo dejó claro en las contadas ocasiones que aceptó pronunciarse al respecto. Le preguntaban, con esa solemnidad que solo se gasta el periodismo cultural cuando intuye que hay polémica donde no la hay: "¿Pero entonces todos todos? ¿Incluso fulano? ¿Y mengano?". Robe, con la paciencia de quien explica a un niño que el agua moja, respondía siempre lo mismo: todos son todos. No había trampa ni excepción ni paréntesis legal. El cuantificador universal extremeño operaba sin restricción de dominio.
