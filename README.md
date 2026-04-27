@@ -122,4 +122,4 @@ Y eso, en estos tiempos donde todo el mundo quiere matizar, es de un valor incal
 
 ---
 
-*Análisis lexicosemántico, ontológico y jurídico del mandato extremoduriano · Edición consolidada para GitHub · Madrid, abril 2026* Por RAL.
+*Análisis lexicosemántico, ontológico y jurídico del mandato extremoduriano · Edición consolidada para GitHub · Madrid, abril 2026*. Por Rafa 50855.
